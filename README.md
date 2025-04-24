@@ -6,7 +6,7 @@
 
 ---
 
-![Banner informativo](https://via.placeholder.com/1000x300.png?text=Guía+para+comprar+Viagra+Genérico+de+forma+segura)
+![Banner informativo](https://static.vecteezy.com/system/resources/previews/022/219/537/non_2x/click-cursor-icon-with-click-here-button-free-png.png)
 
 ## 🧠 Introducción
 
