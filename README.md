@@ -13,7 +13,7 @@
 ¿Buscas comprar Viagra genérico en línea de manera legal y segura?  
 Esta guía autorizada te explica cómo hacerlo correctamente en **España**, sin riesgos ni complicaciones.
 
-👉 [**Haz clic aquí para acceder a la guía completa**](https://t.me/ZenithSupport_BOT)
+👉 [**Haz clic aquí para acceder a la guía completa**](https://www.univ-oeb.dz/es/como-comprar-viagra-generico-de-forma-segura-guia-medica-autorizada/)
 
 ---
 
@@ -23,7 +23,7 @@ Esta guía autorizada te explica cómo hacerlo correctamente en **España**, sin
 - Alternativa **más económica y efectiva**
 - Necesita **estimulación sexual previa** para funcionar
 
-➡️ [Descubre más en nuestra web](https://t.me/ZenithSupport_BOT)
+➡️ [Descubre más en nuestra web](https://www.univ-oeb.dz/es/como-comprar-viagra-generico-de-forma-segura-guia-medica-autorizada/)
 
 ---
 
@@ -44,7 +44,7 @@ Esta guía autorizada te explica cómo hacerlo correctamente en **España**, sin
 
 ❌ ¡Evita sitios sin dirección clara o que no pidan receta!
 
-✅ [Consulta farmacias seguras aquí](https://t.me/ZenithSupport_BOT)
+✅ [Consulta farmacias seguras aquí](https://www.univ-oeb.dz/es/como-comprar-viagra-generico-de-forma-segura-guia-medica-autorizada/)
 
 ---
 
@@ -58,7 +58,7 @@ Esta guía autorizada te explica cómo hacerlo correctamente en **España**, sin
 🟢 Código verificador  
 🟢 Holograma oficial
 
-🔗 [Ver ejemplo real y consejos en nuestra web](https://t.me/ZenithSupport_BOT)
+🔗 [Ver ejemplo real y consejos en nuestra web](https://www.univ-oeb.dz/es/como-comprar-viagra-generico-de-forma-segura-guia-medica-autorizada/)
 
 ---
 
@@ -68,7 +68,7 @@ Esta guía autorizada te explica cómo hacerlo correctamente en **España**, sin
 ✔️ Métodos de pago con verificación (3D-Secure)  
 ✔️ Política clara de privacidad
 
-🔒 [Ver guía de compra segura](https://t.me/ZenithSupport_BOT)
+🔒 [Ver guía de compra segura](https://www.univ-oeb.dz/es/como-comprar-viagra-generico-de-forma-segura-guia-medica-autorizada/)
 
 ---
 
@@ -80,13 +80,13 @@ Esta guía autorizada te explica cómo hacerlo correctamente en **España**, sin
 | Genérico Normon  | 6,9€/pastilla | ✅          |
 | Genérico Sandoz  | 6,3€/pastilla | ✅          |
 
-💰 [Consulta precios actualizados aquí](https://t.me/ZenithSupport_BOT)
+💰 [Consulta precios actualizados aquí](https://www.univ-oeb.dz/es/como-comprar-viagra-generico-de-forma-segura-guia-medica-autorizada/)
 
 ---
 
 ## 📲 ¡Haz tu consulta online ahora!
 
-[![Consulta con un médico autorizado](https://img.shields.io/badge/CONSULTA%20ONLINE-AHORA%20MISMO-ff69b4?style=for-the-badge&logo=zoom)](https://t.me/ZenithSupport_BOT)
+[![Consulta con un médico autorizado](https://img.shields.io/badge/CONSULTA%20ONLINE-AHORA%20MISMO-ff69b4?style=for-the-badge&logo=zoom)](https://www.univ-oeb.dz/es/como-comprar-viagra-generico-de-forma-segura-guia-medica-autorizada/)
 
 📩 Recibe receta electrónica en minutos  
 🚚 Envío rápido a tu domicilio
@@ -99,7 +99,7 @@ Esta guía autorizada te explica cómo hacerlo correctamente en **España**, sin
 ✔️ Solo debe comprarse **con receta** y en farmacias autorizadas  
 ✔️ Protégete de falsificaciones y fraudes
 
-[![Compra segura ya](https://img.shields.io/badge/QUIERO%20COMPRAR%20SEGURO-IR%20A%20LA%20WEB-blueviolet?style=for-the-badge&logo=trustedshops)](https://t.me/ZenithSupport_BOT)
+[![Compra segura ya](https://img.shields.io/badge/QUIERO%20COMPRAR%20SEGURO-IR%20A%20LA%20WEB-blueviolet?style=for-the-badge&logo=trustedshops)](https://www.univ-oeb.dz/es/como-comprar-viagra-generico-de-forma-segura-guia-medica-autorizada/)
 
 ---
 
@@ -114,4 +114,4 @@ Esta guía autorizada te explica cómo hacerlo correctamente en **España**, sin
 
 > 🛡️ Este README es informativo y no reemplaza una consulta médica. Para diagnóstico y prescripción, visita nuestro sitio:
 >  
-> [![Visítanos Ahora](https://img.shields.io/badge/VISITA%20LA%20WEB-AQUÍ-00cc99?style=for-the-badge&logo=internet-explorer)](https://t.me/ZenithSupport_BOT)
+> [![Visítanos Ahora](https://img.shields.io/badge/VISITA%20LA%20WEB-AQUÍ-00cc99?style=for-the-badge&logo=internet-explorer)](https://www.univ-oeb.dz/es/como-comprar-viagra-generico-de-forma-segura-guia-medica-autorizada/)
